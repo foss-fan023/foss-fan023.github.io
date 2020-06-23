@@ -7,3 +7,5 @@ Daniele Ganser (geboren am 29. August 1972 in Lugano) ist ein Schweizer Historik
 * Geboren und wohnhaft in der Schweiz
 * Doktor der Philosophie
 > Man soll nicht einfach blind seine Identität auf eine Firma, eine Religion oder auf eine politische Partei bauen. Die echte Identität soll man an seinen Werten festmachen, nur dort hat man Stabilität.
+
+<img src="https://upload.wikimedia.org/wikipedia/commons/thumb/d/d1/Dr._Daniele_Ganser_%28cropped%29_JD.jpg/800px-Dr._Daniele_Ganser_%28cropped%29_JD.jpg"/>
